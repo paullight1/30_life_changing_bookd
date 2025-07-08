@@ -1,4 +1,4 @@
-30 Life-Changing Books That Will Completely Rewire How You Think 🌟
+### 30 Life-Changing Books That Will Completely Rewire How You Think 🌟
 
 ---
 
@@ -286,6 +286,4 @@ If you find this project helpful, feel free to star ⭐ it and share it with oth
 
 
 ---
-
-👇 Scroll down to dive into the full list...
 
